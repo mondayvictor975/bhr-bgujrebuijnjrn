@@ -8,7 +8,7 @@ We've got 53 definitions for DFF »
 What does DFF stand for? 
 What does DFF mean? This page is about the various possible meanings of the acronym, abbreviation, shorthand or slang term: DFF.
 Filter by:
-Sort by:PopularityAlphabeticallyCategory	
+Sort by:PopularityAlphabeticallyCategoryfduhctyhvch	
 Term	Definition	Rating
 DFF	
 
